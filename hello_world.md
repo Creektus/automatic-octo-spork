@@ -1,3 +1,4 @@
 ## привет!
 
-ooososojczvllclvljz;jvjslf;olJOJOJjcllxnclsllc`nkn`;jslclclj`l;`llsjlcscc`nclsllc;c;;s`vk;k
+ooososojczvllclvljz;jvjslf;olJOJOJjcx
+lklfl/kfs/klfsa/k`a/nksf/nkzs/klnlsdf/kln/asnkl/akln/ank/
